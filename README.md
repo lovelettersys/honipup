@@ -1,3 +1,6 @@
+
+<img width="835" height="370" alt="image" src="https://github.com/user-attachments/assets/5cdf92a5-1dbc-4efc-a426-e873d8385c38" />
+
 <img width="381" height="57" alt="image" src="https://github.com/user-attachments/assets/ef805f0c-f66c-47e6-9aa7-01d9dbe8ea46" />
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/bbdc7a20-8a6d-46f3-a162-98f422334945" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/6220b784-97e0-4d09-8833-6130971bf154" /> <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/59fa1f2a-4820-4f35-a72d-abc28ecc73ff" />
@@ -16,18 +19,22 @@
 
 ⊹ 　﹒ fandoms﹕　ace attorney, look outside [RPG], NITW, outlast trials   𓈒  .
 co-op games we play: outlast trials, minecraft
+
 https://steamcommunity.com/id/lovelettersys/
+
+<img width="1005" height="140" alt="image" src="https://github.com/user-attachments/assets/0299c77e-7663-49a4-bc5e-52155a3d2473" />
+
 
 ╰┈⋆ . we are 26 years old bodily!
 
 ⊹ 　﹒ we prefer to talk to other adults and will only befriend other adults. 
 
-𓊆 we are actively in the hardcore kink scene and love to befriend other freaks. 
+𓊆 we are actively in the hardcore kink scene and love to befriend other openly queer people. 
 talk to us to know more about this. otherwise we are silent about our nsfw interests.
 
 **we do not have a DNI**, and do not shame others for what they like to see in fiction! 
-JUST PLEASE KEEP IN MIND: we do not want to interact with those who identify as endogenic, 
-and we do not support actual harmful or dangerous behavior. 
+**JUST PLEASE KEEP IN MIND:** we do not want to interact with those who identify as endogenic, 
+and we do not support actual harmful or dangerous behavior outside of safe sane consensual kink. 
 
 !! we are polyam and married / in a committed relationship, but our alters are allowed to have
 online relationships of any sort with sourcemates!
@@ -41,6 +48,6 @@ SYBIL [look outside] - 26 in source. she/her
 
 LYLE [look outside] - 21 in source. he/him
 
-
+<img width="779" height="260" alt="image" src="https://github.com/user-attachments/assets/8ef582cf-b2f2-4a42-96bf-eec15d113fff" />
 
 
