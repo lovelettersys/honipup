@@ -14,9 +14,27 @@
 
 ╭┈⋆ ˚ 　interests ⸝⸝ pixel art / digital art, game development, entomology, astronomy
 
-fandoms﹕　ace attorney, look outside [RPG], NITW, outlast trials   𓈒  .
+⊹ 　﹒ fandoms﹕　ace attorney, look outside [RPG], NITW, outlast trials   𓈒  .
+co-op games we play: outlast trials, minecraft
+https://steamcommunity.com/id/lovelettersys/
 
-╰┈⋆ . 　 xtra﹕　here   ࿔   ˚　𓈒
+╰┈⋆ . 　   ࿔   ˚　𓈒
+
+⊹ 　﹒ we prefer to talk to other adults and will only befriend other adults. 
+
+𓊆 we are actively in the hardcore kink scene and love to befriend other freaks. talk to us to know more.
+
+we do not have a DNI, and do not shame others for what they like to see in fiction! 
+just respect our boundaries when/if we need to discuss them.
+!! we are polyam and married / in a committed relationship, but our alters are allowed to have
+online relationships of any sort with sourcemates!
+
+
+・:。𝐢𝐧𝐯𝐢𝐭𝐚𝐭𝐢𝐨𝐧「 ✉️ 」・:三 fictives currently looking for sourcemates:
+
+SAM [look outside] - 34 in source. he/him
+SYBIL [look outside] - 26 in source. she/her
+LYLE [look outside] - 21 in source. he/him
 
 
 
